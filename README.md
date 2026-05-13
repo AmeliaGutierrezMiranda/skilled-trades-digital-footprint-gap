@@ -2,7 +2,7 @@
 
 ## Why Traditional Tech-Driven Sourcing Misses Critical Industrial Talent
 
-### By Amelia Gutierrez
+### By Amelia Gutierrez Miranda
 
 ---
 
